@@ -1,1 +1,1 @@
-universidad ort
+UNIVERSIDAD ORT
